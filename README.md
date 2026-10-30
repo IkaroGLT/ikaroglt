@@ -32,7 +32,7 @@ Atuei por **11 meses como Auxiliar de Produção na Jeep Stellantis**, concilian
 
 - **Portfólio:** [🌐 Meu Portfólio](https://ikaroglt.github.io/)
 - **LinkedIn:** [🔗 Meu LinkedIn](https://www.linkedin.com/in/ikaro-g-78b604219/)
-- **Email:** [📧 Enviar e-mail](mailto:ikaroguilhermelins@gmail.com)
+- **Email:** [📧 Enviar e-mail](https://mail.google.com/mail/?view=cm&fs=1&to=ikaroguilhermelins@gmail.com)
 
 > Em constante aprendizado. Meu foco é construir, documentar e evoluir.
 
