@@ -31,7 +31,7 @@ Atuei por **11 meses como Auxiliar de Produção na Jeep Stellantis**, concilian
 ### 🔗 Vamos nos conectar?
 
 - **Portfólio:** [acesse meu site](https://ikaroglt.github.io)
-- **LinkedIn:** [meu perfil](www.linkedin.com/in/ikaro-g-78b604219)
+- **LinkedIn:** [meu perfil](https://www.linkedin.com/in/ikaro-g-78b604219/)
 
 > Em constante aprendizado. Meu foco é construir, documentar e evoluir.
 
